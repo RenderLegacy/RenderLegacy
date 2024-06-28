@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on coding
-- 📫 How to reach me on gmail at legacyfotlyf@gmail.com
+- 📫 How to reach me on gmail at legacyforlyf@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
